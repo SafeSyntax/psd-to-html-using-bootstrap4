@@ -19,9 +19,6 @@ https://www.youtube.com/watch?v=Gt0LBUagEDI&list=PLWViRpE5zh3qir8Djy4ct2ygdNbLBR
 
 🔹প্রজেক্ট ফাইলগুলো পাবেন এখানে    
 http://bit.ly/psd-to-html-b4  
- 
-🔹PSD File     
-https://drive.google.com/drive/u/4/folders/14j9sXpiEo9DtWKavZkq9WzVWzUJKh1tj  
 
 🔹WordPress Tutorials:   
 https://www.youtube.com/watch?v=aJcYWLdTHQQ&list=PLWViRpE5zh3pDt-Ka-JuTgOfnO0AWnvWa  
