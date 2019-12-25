@@ -33,7 +33,7 @@ https://www.youtube.com/gmmostakimbillah
 🔹Learn Web Design and Development:   
 https://www.youtube.com/gmmostakimbillah 
 
-**Safe Syntax  **
+** Safe Syntax  **  
 ▪️104 Haji Ismail Road (Near Khalil Chamber), Sheikh Para, Sonadanga, Khulna 9100  
 ▪️Website: http://www.safesyntax.com/  
 ▪️Facebook: https://www.facebook.com/SafeSyntax  
