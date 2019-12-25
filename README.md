@@ -11,11 +11,11 @@
 https://www.youtube.com/watch?v=Gt0LBUagEDI&list=PLWViRpE5zh3qir8Djy4ct2ygdNbLBRtOv  
 
 
-অন্যান্য পর্বগুলো দেখুন এখানে    
-🔶১ম: পর্ব: https://youtu.be/Zl7KBgPOtio  
-🔶২য় পর্ব: https://youtu.be/r6BgY1qJ1NU  
-🔶৩য় পর্ব: https://youtu.be/tVke8JzrvhA  
-🔶৪র্থ পর্ব: https://youtu.be/Gt0LBUagEDI  
+অন্যান্য পর্বগুলো দেখুন এখানে  
+🔶১ম: পর্ব: [এখানে](https://youtu.be/Zl7KBgPOtio)  
+🔶২য় পর্ব: [এখানে](https://youtu.be/r6BgY1qJ1NU)   
+🔶৩য় পর্ব: [এখানে](https://youtu.be/tVke8JzrvhA)  
+🔶৪র্থ পর্ব: [এখানে](https://youtu.be/Gt0LBUagEDI)  
 
 🔹প্রজেক্ট ফাইলগুলো পাবেন এখানে    
 http://bit.ly/psd-to-html-b4  
@@ -30,15 +30,13 @@ https://www.youtube.com/gmmostakimbillah
 🔹Learn Web Design and Development:   
 https://www.youtube.com/gmmostakimbillah 
 
-** Safe Syntax  **  
-▪️104 Haji Ismail Road (Near Khalil Chamber), Sheikh Para, Sonadanga, Khulna 9100  
+**Safe Syntax**  
+**▪️104 Haji Ismail Road (Near Khalil Chamber), Sheikh Para, Sonadanga, Khulna 9100**    
 ▪️Website: http://www.safesyntax.com/  
 ▪️Facebook: https://www.facebook.com/SafeSyntax  
 ▪️Youtube:  https://www.youtube.com/SafeSyntax  
 ▪️Youtube 2: https://www.youtube.com/GMMostakimBillah   
 ▪️Email: contact@safesyntax.com  
 ▪️Mobile: 📞01914467622   
-
-
 
 👨‍🦱 Mentor: G M Mostakim Billah Rasel
